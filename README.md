@@ -1,1 +1,0 @@
-# Corizo_Capstone-Stone-Project-1-Minor-project
